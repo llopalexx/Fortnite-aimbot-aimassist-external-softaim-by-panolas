@@ -5,14 +5,4 @@
 😋Highly customizable, custom aimkey,smoothness, fov rectangle, legit-looking, fun to use and easy and fast setup!😋
 
 🥳Many costumers have placed in tournaments because of their improved aim! Get yours today!🥳
-.
-.
-.
-.
-.
-.
-.
-.
-**FAIR USE**
 
-Copyright Disclaimer under section 107 of the Copyright Act 1976, allowance is made for “fair use” for purposes such as criticism, comment, news reporting, teaching, scholarship, education and research.
