@@ -6,3 +6,7 @@
 
 🥳Many costumers have placed in tournaments because of their improved aim! Get yours today!🥳
 
+💜https://panolas.sell.app/ (anonymous and instant purchase, ALWAYS UPDATED)💜
+💜https://discord.gg/aimassist (discord to ask questions, purchase and hang out)💜
+
+
