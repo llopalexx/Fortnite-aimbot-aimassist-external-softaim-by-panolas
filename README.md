@@ -5,15 +5,13 @@
 😋Highly customizable, custom aimkey,smoothness, fov rectangle, legit-looking, fun to use and easy and fast setup!😋
 
 🥳Many costumers have placed in tournaments because of their improved aim! Get yours today!🥳
-
-
-
-
-
-
-
-
-
+.
+.
+.
+.
+.
+.
+.
 .
 **FAIR USE**
 
