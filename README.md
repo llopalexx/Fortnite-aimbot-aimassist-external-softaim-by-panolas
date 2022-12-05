@@ -10,6 +10,9 @@
 
 💜https://discord.gg/aimassist (discord to ask questions, purchase and hang out)💜
 
+![image](https://user-images.githubusercontent.com/105129035/205740426-94d37977-e5b9-4cdb-a5d1-18ab1397935f.png)
+
 Disclaimer - This file is for educational purpose only. Copyright Disclaimer Under Section 107 of the Copyright Act 1976, allowance is made for "fair use" for purposes such as criticism, comment, news reporting, teaching, scholarship, and research. Fair use is a use permitted by copyright statute that might otherwise be infringing. Non-profit, educational or personal use tips the balance in favor of fair use.
+
 
 
